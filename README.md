@@ -1,0 +1,1 @@
+--*this is a script i found in pastebin please enjoy.*
